@@ -16,5 +16,4 @@
 - Soße in Topf geben. Es besteht die Möglichkeit den gleichen Topf zu verwenden (Achtung, Maximalvolumen ist zu beachten, idr. wird "Nudeln mit Soße" mit mehr Nudeln als Soße verzehrt).
 - Soße im Topf erwährmen, dazu Herd anmachen.
 - Soße zu den Nudeln geben.
-- Nun kann Soße mit Nudeln verzehrt werden.
-- 
+- Nun kann Soße mit Nudeln verzehrt werden. 
