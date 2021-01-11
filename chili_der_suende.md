@@ -5,7 +5,7 @@
 - 1 Zwiebel, die einen zum Weinen bringt
 - 2 Knoblauchzehen für den Gruppenzwang
 - 3 Esslöffel Olivenöl (aus lebenden Oliven gepresst)
-- 250g töfte Tüften (KAR-TOFF-ELN, man tut sie in das Chili)
+- 250g töfte Tüften (KAR-TOF-FELN, man tut sie in das Chili)
 - 200g Rote Linsen die nicht grinsen
 - 900ml bühend heiße Gemüsebrühe
 - 2x425ml Dosen Kidneybohnen (alternativ eine echte Niere) 
